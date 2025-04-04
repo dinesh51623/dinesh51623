@@ -4,7 +4,7 @@
 
 💞️ I’m looking to collaborate on Battery Management Systems, Wireless Power Transfer, and AI-driven Circuit Optimization
 
-📫 How to reach me: dineshsubra516@gmail.com | DINESH KUMAR SUBRAMANIYAN LinkedIn
+📫 How to reach me: dineshsubra516@gmail.com | www.linkedin.com/in/dinesh-kumar-subramaniyan-372290239 LinkedIn
 
 😄 Pronouns: He/Him
 
